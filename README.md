@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @puppybyte
-- 👀 I’m interested in ...  my boyfriend
+- 👀 I’m interested in ...  my boyfriend 💞️ 
 - 🌱 I’m currently learning ... Sudolang
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... the dog house 
+- 📫 How to reach me ... Contact my owner
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... I love dogs
 
